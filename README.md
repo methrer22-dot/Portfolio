@@ -16,5 +16,5 @@
 - Machine Learning Programs
 
 ## Contact
-- LinkedIn: (Add later)
-- Email: Your email address# Portfolio
+- LinkedIn:https://www.linkedin.com/in/radhika-methre-2959232a4
+- Email: methreradhika730@gmail.com
